@@ -14,5 +14,3 @@ HELL NO! Ive quit gaming completly and found out a new satisfaction with learnin
 
 - Where do I see myself in 10years?🔮
 Starting up my own predictive analysis agency and having a couple of investment bankers as my main clients
-
-![joseph-klibansky_blog_instagram_1536884421695802328_310569652_lg](https://github.com/user-attachments/assets/935873b6-aa18-4d34-901a-aa72b17e71a3)
