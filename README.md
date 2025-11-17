@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+- 🔭 I’m currently not working, because im mostly studying. With an ultimative goal of becoming a Data Scientist, with a specialization in ML.
+
+![1758801607981](https://github.com/user-attachments/assets/e522dbf0-5dad-44e8-90b4-e479a52ff0ec)
+
 <!--
 **BK2300/BK2300** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
