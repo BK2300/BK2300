@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+## This portefolio is under reconstrution... Bare over with me if you see weird or wrong stuff💀
+
+
+________________________________________________________________________
 - 🔭 I’m currently not working, because im mostly studying. With an ultimative goal of becoming a Data Scientist, with a specialization in ML.
 
 - Goals after my studies?📚🧑‍🎓
